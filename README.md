@@ -1,5 +1,4 @@
-## Hi there 👋
-
+Everton herique tenho 17 anos 3anos ensino médio 
 <!--
 **EVERTON3A2024/EVERTON3A2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
