@@ -1,4 +1,4 @@
-Everton herique tenho 17 anos 3anos ensino médio 
+Everton herique eu tenho 17 anos eu estou no 3 ano do ensino medio eu gosto de andar de bike e eu gosto de jogar ping pong
 <!--
 **EVERTON3A2024/EVERTON3A2024** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
